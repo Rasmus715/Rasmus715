@@ -9,4 +9,4 @@
 - Currently looking for a job <br> <br>
 - Willing to relocate <br> <br>
 
-Aside from programming I like to watch F1 (McLaren stan) and play videogames (Metal Gear Series are my favorite one)
+Aside from programming I like to watch F1 (McLaren stan) and play videogames (Metal Gear Series is my favorite one)
